@@ -1,0 +1,4 @@
+- 👋 Hi, It's Jigisha-Foundation
+- 👀 We are interested in Social works
+- 💪🏼 We are contributing as an NGO in Healthcare and Education of India
+- 📫 Mail us : jigishafoundations@gmail.com
